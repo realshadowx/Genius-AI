@@ -1,5 +1,7 @@
 # Genius AI Discount 2025 | Get 50% Off Coupon Code 🔥
 
+Hello folks, Amir here.
+
 Looking to level up your AI game without breaking the bank?
 
 You're in the right place! Genius AI is offering amazing discounts in 2025, and you can [save up to 50%](https://genius.ai?fpr=shadow) on their plans with exclusive coupon codes.
