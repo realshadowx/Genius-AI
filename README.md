@@ -6,7 +6,7 @@ Looking to level up your AI game without breaking the bank?
 
 You're in the right place! Genius AI is offering amazing discounts in 2025, and you can [save up to 50%](https://genius.ai?fpr=shadow) on their plans with exclusive coupon codes.
 
-[![|602x135](https://lh7-rt.googleusercontent.com/docsz/AD_4nXfkYzNG3l_opTKBA9SYHAHJf0pDGDq7gca_K1n4-3sHOCaxgwriHxDqTxm7CRkg7b2qbtp4UBWtrz1ywBSD46u7Q-oK11KBYEDnJLJ7Vp729NicGu0MhKSgD1MIhFUg0OXIdShBuw?key=-4MwfXc_XHrvQ-UrKLn85GOR)](https://genius.ai?fpr=shadow)
+[![Discount button](https://github.com/user-attachments/assets/74dbea3c-477d-4908-a1be-bab90b4f550f)](https://genius.ai?fpr=shadow)
 
 ## Top Genius AI Coupon Codes for 2025
 
@@ -42,7 +42,7 @@ You're in the right place! Genius AI is offering amazing discounts in 2025, and 
 * Expiry Date: April 1, 2025.
 * How to Use the Code: Enter YEARLY10 during checkout to unlock your discount.
 
-[![|602x135](https://lh7-rt.googleusercontent.com/docsz/AD_4nXfkYzNG3l_opTKBA9SYHAHJf0pDGDq7gca_K1n4-3sHOCaxgwriHxDqTxm7CRkg7b2qbtp4UBWtrz1ywBSD46u7Q-oK11KBYEDnJLJ7Vp729NicGu0MhKSgD1MIhFUg0OXIdShBuw?key=-4MwfXc_XHrvQ-UrKLn85GOR)](https://genius.ai?fpr=shadow)
+[![Discount button](https://github.com/user-attachments/assets/74dbea3c-477d-4908-a1be-bab90b4f550f)](https://genius.ai?fpr=shadow)
 
 ## How to Redeem Genius AI Coupon Codes?
 
@@ -66,7 +66,7 @@ Make sure the discount has been applied to your total. Once confirmed, proceed t
 
 It’s that easy to start enjoying Genius AI at a discounted price!
 
-[![|602x135](https://lh7-rt.googleusercontent.com/docsz/AD_4nXfkYzNG3l_opTKBA9SYHAHJf0pDGDq7gca_K1n4-3sHOCaxgwriHxDqTxm7CRkg7b2qbtp4UBWtrz1ywBSD46u7Q-oK11KBYEDnJLJ7Vp729NicGu0MhKSgD1MIhFUg0OXIdShBuw?key=-4MwfXc_XHrvQ-UrKLn85GOR)](https://genius.ai?fpr=shadow)
+[![Discount button](https://github.com/user-attachments/assets/74dbea3c-477d-4908-a1be-bab90b4f550f)](https://genius.ai?fpr=shadow)
 
 ## Genius AI Pricing & Savings Breakdown
 
@@ -97,7 +97,7 @@ Genius AI offers flexible pricing plans tailored to different types of users. He
 
 No matter your plan or budget, Genius AI makes it easy to get started while enjoying major savings.
 
-[![|602x135](https://lh7-rt.googleusercontent.com/docsz/AD_4nXfkYzNG3l_opTKBA9SYHAHJf0pDGDq7gca_K1n4-3sHOCaxgwriHxDqTxm7CRkg7b2qbtp4UBWtrz1ywBSD46u7Q-oK11KBYEDnJLJ7Vp729NicGu0MhKSgD1MIhFUg0OXIdShBuw?key=-4MwfXc_XHrvQ-UrKLn85GOR)](https://genius.ai?fpr=shadow)
+[![Discount button](https://github.com/user-attachments/assets/74dbea3c-477d-4908-a1be-bab90b4f550f)](https://genius.ai?fpr=shadow)
 
 ## About Genius AI
 
